@@ -14,5 +14,4 @@ The link for downloading latest version is https://mega.nz/#!otgXVKJT!EYsk9gSdwT
 Последнюю редакцию вы можете скачать по ссылке https://mega.nz/#!otgXVKJT!EYsk9gSdwTxBSIRg2FIAPqGoZ_v-oAt15kTmC5NG3ac
 
 ######
-Инструкция к составлению словарных статей можете найти здесь https://goo.gl/40JiZB
-
+Инструкцию к составлению словарных статей можете найти здесь https://goo.gl/40JiZB 
